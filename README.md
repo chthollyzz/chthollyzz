@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @chthollyzz
+- 👀 I’m interested in OI and math
+- 🌱 I’m currently learning OI
+- 💞️ I’m looking to collaborate on web & OI projects
+- 📫 How to reach me: shuzhouliu@icloud.com
+- 😄 Pronouns: he, him, his
